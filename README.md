@@ -1,2 +1,0 @@
-# vanzofficial
-vanzofficial.id
